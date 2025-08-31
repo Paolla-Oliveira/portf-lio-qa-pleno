@@ -76,7 +76,8 @@ Sou Analista de Qualidade com foco em garantir a excelência de software, desde 
 
 - [LinkedIn](#)
 - [E-mail](mailto: paollavitoria96@gmail.com)
-- [Currículo em PDF](#)
+- [Currículo em PDF]()[New CV EN.pdf](https://github.com/user-attachments/files/22061793/New.CV.EN.pdf)
+
 
 ---
 
